@@ -1,2 +1,1 @@
-# SAM
-SAMMMMM!!!
+# Panget mo Sam!
